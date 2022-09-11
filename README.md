@@ -1,4 +1,4 @@
-help me
+random guy on github lmao
 
 <!---
 nbonnie2/nbonnie2 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
